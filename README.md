@@ -1,0 +1,1 @@
+# samsung-galexy-A10S
